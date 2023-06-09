@@ -1,0 +1,1 @@
+# LGMVIP--DataScience-Task-Numer-7
